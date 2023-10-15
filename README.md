@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my life. 
 - 📫 How to reach me: email works best. 
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: I can swim very fast
+- ⚡ Fun fact: I can swim competitively. 
 -->
